@@ -64,6 +64,8 @@ BanG Dream! Ave Mujica
 
 憧憬成为魔法少女
 
+Anne Happy
+
 明天，美食广场见。
 
 URARA迷路帖
