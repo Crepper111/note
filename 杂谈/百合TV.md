@@ -44,19 +44,21 @@ BanG Dream!第二季
 
 我怎么可能成为你的恋人，不行不行！(不是不可能！？)
 
+一叠间漫画咖啡屋生活！
+
 莉可丽丝
 
 slow start
 
 时光流逝 饭菜依旧美味
 
-一叠间漫画咖啡屋生活！
-
 ## 二线
 
 Girls Band Cry
 
 BanG Dream! It's MyGO!!!!!
+
+与你相恋到生命尽头
 
 BanG Dream! Ave Mujica
 
